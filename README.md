@@ -1,6 +1,6 @@
 ###                                                                 Hi there! 👋 I am Priti Murarka
 
-💻  About Me
+💻 About Me :-
 
 
 🔭  I am currently looking for internships in Web Development and Machine Learning.
