@@ -1,4 +1,5 @@
-###                                                                 Hi there! 👋 I am Priti Murarka
+# Hi there! 👋 I am Priti Murarka 
+
 
 💻 About Me :-
 
