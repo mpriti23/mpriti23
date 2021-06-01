@@ -7,7 +7,7 @@
 
 💡  A Problem Solver,  looking for an opportunity to work with an organization to learn, innovate, and evolve continuously along with adding value to the organization and clients.
 
-✍️  Apart from acedemics, I love spending time playing chess or Basketball. I have a creative mind.
+✍️  Apart from academics, I love spending time playing chess or Basketball.
 
 🚀 Skills
 
